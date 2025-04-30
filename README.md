@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @RicardoGAldanaG a Data Punk, Foodie & Music..
+- 👀 I’m interested in Big Data, Analytics, Excel, SQL, R, Python and grunge.. 
+- 🌱 I’m currently learning all of them and more..
+- 💞️ I’m looking to collaborate on any kind of project..
+- 📫 How to reach me? www.linkedin.com/in/ricardo-aldana-data-analyst-bi
+- 😄 Pronouns: What?
+- ⚡ Fun fact: I'm very catholic..
+- ✝️ A good bit of Catholic..
